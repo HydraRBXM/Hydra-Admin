@@ -6,8 +6,11 @@ theres a premium version youll get the more good kind and beta versions of the s
 Discord: https://discord.gg/U8tbnkgTmw
 
 #「𓆩𖤍𓆪」HYDRA ION/ADMIN PREMIUM 「𓆩𖤍𓆪」
-「𓆩1𓆪」 Gift nitro basic 
+「𓆩1𓆪」Gift nitro basic 
 「𓆩2𓆪」Boost our server 
 「𓆩3𓆪」Invite 15+ people! 
 
 # 「𓆩𖤍𓆪」CURRENT VERSION: V1「𓆩𖤍𓆪」
+
+![image](https://github.com/user-attachments/assets/de60b865-bf67-4fe1-91e0-4831fc55ab60)
+
